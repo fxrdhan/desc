@@ -7,4 +7,4 @@
 </p>
 
 ### Reach me on
-- <a href="https://www.linkedin.com/in/firdaus-arif-ramadhani-997532270/">LinkedIn</a>
+- <a href="www.linkedin.com/in/fxrdhan/">LinkedIn</a>
