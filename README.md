@@ -7,4 +7,4 @@
 </p>
 
 ### Reach me on
-- <a href="www.linkedin.com/in/fxrdhan/">LinkedIn</a>
+- <a href="https://linkedin.com/in/fxrdhan">LinkedIn</a>
